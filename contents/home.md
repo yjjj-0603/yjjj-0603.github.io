@@ -1,6 +1,6 @@
 
 
-He is currently a Fellow in the Department of Radio and Television Studies at Nainjing University.
+She is currently a Fellow in the Department of Radio and Television Studies at Nainjing University.
 
 #### Contact
 
